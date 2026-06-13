@@ -1,1 +1,1 @@
-Projeto universitário
+Projeto de Faculdade
